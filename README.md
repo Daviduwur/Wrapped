@@ -1,2 +1,0 @@
-# Wrapped
-Wrapped de cumpleaños
